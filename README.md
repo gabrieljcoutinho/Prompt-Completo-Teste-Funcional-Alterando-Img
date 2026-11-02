@@ -1,0 +1,1 @@
+# Prompt-Teste-Funcional-Alternaod-Img
